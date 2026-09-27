@@ -1,0 +1,2 @@
+# premium-bar-stool-001-bar-stool-frame-forging-foot
+Tired of juggling spreadsheets and sticky notes to track your custom bar stool frame and foot ring forging projects? This Notion template brings every spec, stage, and client detail into one organized hub.  The Bar Stool Frame Forging &amp; Foot Ring Craft Hub eliminates chaos by centralizing your design specs, material inventory, forging progress, and
